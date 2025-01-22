@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @astridhndz and I am learning all about programacion movil.
+- 👋 Hi, I’m @astridhndz 
